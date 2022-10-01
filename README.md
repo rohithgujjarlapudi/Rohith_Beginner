@@ -3,5 +3,5 @@
 - BTECH CSE:exclamation::heavy_exclamation_mark:
 - PROGRAMMING LANGUAGES KNOWN :BASIC C , BASIC C++:heavy_check_mark:
 - TRYING TO DO BETTER:spiral_notepad:
-- CAN ALSO REACH ME AT INSTA ID:_r.o.h.i.t.h__
+- CAN ALSO REACH ME AT INSTA ID:@_r.o.h.i.t.h__
 
